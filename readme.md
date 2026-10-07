@@ -1,3 +1,3 @@
 # 劉正偉
 ## 1152034
-![asian-man-isolated-expression-emotions_1303-26709.avif]("C:\Users\liucn\OneDrive\桌面\20261007_task\asian-man-isolated-expressing-emotions_1303-26709.avif")
+![[https://www.google.com/search?sca_esv=b3094e2fb3614086&rlz=1C1VDKB_zh-TWTW958TW958&sxsrf=APpeQnvOOH4rNMhdYPR3dSJvPxIpArbOeA:1791338115806&udm=2&fbs=ABfTbFUhNGvvPEUFOvrsPMHwBXgOf1BDPCnJA7T66GFBo7wwhKveeYrgKKfILHkY2xBG4CLixqCG1ENeZxXbOziRleLcYKbNBEO9flFN5KzeRE2ad7snoMtzoA1tYv6gFyGgvxUKZXBeNGLQdORJJsikBlGCIFnOIMJnQ7hbdqGSnLwKVpiyF2UGVSNXY6nZvHXW2dNigLhB&q=%E7%85%A7%E7%89%87&sa=X&ved=2ahUKEwj-sMLA5qaXAxXEoa8BHb6YO4AQtKgLegQIGRAB&biw=1280&bih=598&dpr=1.5#sv=CAMSUxoyKhBlLUxFN2pRTm84c3BhbXBNMg5MRTdqUU5vOHNwYW1wTToONmxDVkNTOVZocW5YcE0gBCoXCgFzEhBlLUxFN2pRTm84c3BhbXBNGAEwAVACGAcgkPzGngpKCBACGAEgAigB.avif]]("C:\Users\liucn\OneDrive\桌面\20261007_task\asian-man-isolated-expressing-emotions_1303-26709.avif")
