@@ -1,3 +1,3 @@
 # 劉正偉
 ## 1152034
-### <img src ="asian-man-isolated-expressing-emotions_1303-26709.avif >
+![asian-man-isolated-expression-emotions_1303-26709.avif]("C:\Users\liucn\OneDrive\桌面\20261007_task\asian-man-isolated-expressing-emotions_1303-26709.avif")
